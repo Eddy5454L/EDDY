@@ -1,2 +1,3 @@
-# EDDY
-Data endho
+# Hello Sobat..!
+# APA KABAR MU 😀
+
